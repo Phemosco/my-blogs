@@ -26,10 +26,10 @@ I understand that **staying motivated** during difficult times can be a challeng
     
 4. **Practice self-care**: Taking care of yourself can help you stay motivated and focused. This could include getting enough sleep, eating a healthy diet, and exercising regularly.
     
-    ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1684152157869/92239efd-5b07-432a-a239-0a47bb5efbba.jpeg align="center")
+    ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1684153706062/9e64a164-66c1-45e0-b613-3ce3f58ac7f4.jpeg align="center")
     
-    1. **Focus on the positive**: It can be easy to get bogged down by negative thoughts and emotions during difficult times. However, focusing on the positive aspects of your life and situation can help you stay motivated and hopeful.
-        
-        ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1684152540564/4f398f13-2d26-4649-96c9-dc60690b7aeb.jpeg align="center")
-        
-        Remember, staying motivated during difficult times is a process that takes time and effort. By incorporating these tips into your daily routine, you can improve your quality of life and achieve your goals.
+5. **Focus on the positive**: It can be easy to get bogged down by negative thoughts and emotions during difficult times. However, focusing on the positive aspects of your life and situation can help you stay motivated and hopeful.
+    
+    ![](https://cdn.hashnode.com/res/hashnode/image/upload/v1684153741325/f763e059-f31e-487e-9266-c51f61089b0e.jpeg align="center")
+    
+    Remember, staying motivated during difficult times is a process that takes time and effort. By incorporating these tips into your daily routine, you can improve your quality of life and achieve your goals.
