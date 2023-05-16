@@ -6,6 +6,7 @@ datePublished: Mon May 15 2023 12:20:12 GMT+0000 (Coordinated Universal Time)
 cuid: clhotc7us001v09lk0u0ghiey
 slug: staying-motivated-during-difficult-times
 cover: https://cdn.hashnode.com/res/hashnode/image/upload/v1684148037682/41477fe8-d0a2-4ed4-9103-ab8f48d30ea2.jpeg
+ogImage: https://cdn.hashnode.com/res/hashnode/image/upload/v1684221162293/facc6107-f8b4-4796-b228-d7785c774784.jpeg
 tags: motivation, goals, positive-thinking, candoit, celebrate
 
 ---
